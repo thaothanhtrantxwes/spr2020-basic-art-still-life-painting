@@ -1,0 +1,1 @@
+# spr2020-basic-arts-still-life-painting
